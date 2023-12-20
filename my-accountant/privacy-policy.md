@@ -59,4 +59,5 @@ This policy is effective as of 2023-12-19
 
 **Contact Us**
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at enamul.haque.sumon@gmail.com.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at operation3incorporation@gmail.com
+.
